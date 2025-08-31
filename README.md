@@ -10,4 +10,4 @@ Subscribe with us for Weekly news letters https://feeds.feedburner.com/Jharaphul
 
 Give us a like in Facebook https://www.facebook.com/tajinweb
 
-Follow us in Twitter https://twitter.com/jharaphula
+Follow us in Twitter https://x.com/guestpostingopp/
